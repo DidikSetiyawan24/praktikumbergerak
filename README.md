@@ -1,0 +1,2 @@
+# praktikumbergerak
+pertemuan6
